@@ -1,5 +1,5 @@
 # Apk-Crypter
-Apk-Crypter
+Apk-Crypter.
 Bypass Google Play Protect
 
 ✅PM : https://t.me/spoof0x
